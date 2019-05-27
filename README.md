@@ -1,0 +1,1 @@
+波普尔曾经说过：“All Life are problem solving.”
